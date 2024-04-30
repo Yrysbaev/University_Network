@@ -47,4 +47,4 @@ We welcome contributions from students and faculty. To contribute:
 
 ## Contact Information
 
-For further inquiries, contact Yrysbaev Maksatbek at mzamirbekovic02@gmail.com.
+If you have any questions, concerns, or require further assistance, don't hesitate to contact Maksatbek Yrysbaev. You can reach Maksatbek via email at mzamirbekovic02@gmail.com.
